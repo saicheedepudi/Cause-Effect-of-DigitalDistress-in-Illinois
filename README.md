@@ -1,4 +1,4 @@
-# Cause-Effect-of-DigitalDistress-in-Illinois
+# Cause-And-Effect-of-DigitalDistress-in-Illinois
 
 As the digital economy and society continue to grow, communities and individuals have a shot at improving their quality of life.
 However, not everybody is being able to participate in this digital age. Those on the wrong side of the divide are being left behind, 
